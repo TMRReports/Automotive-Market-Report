@@ -3,7 +3,7 @@
 
 When we think about advancements in the automotive world, it’s easy to get caught up in flashy electric vehicles, AI-powered infotainment systems, or autonomous driving technology. But behind the scenes, the **automotive drive shaft**—a key mechanical component—continues to play a crucial role in how vehicles operate, especially when it comes to performance, safety, and efficiency.
 
-While it may not make headlines, the **automotive drive shaft market**[Click to Request](https://www.transparencymarketresearch.com/automotive-drive-shafts-market.html) is a critical segment of the automotive supply chain. And it’s set to continue its slow but steady growth over the next decade.
+While it may not make headlines, the [automotive drive shaft market](https://www.transparencymarketresearch.com/automotive-drive-shafts-market.html) is a critical segment of the automotive supply chain. And it’s set to continue its slow but steady growth over the next decade.
 
 Let’s dive into what the drive shaft does, why it matters, and how this often-overlooked market is shaping up through 2035.
 
